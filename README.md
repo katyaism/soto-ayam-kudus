@@ -1,2 +1,2 @@
 # soto-ayam-kudus
-danusan anak gps
+Kalau pada nanya kenapa namanya soto ayam kudus? basically karena keliatan estetik aja
